@@ -2,7 +2,7 @@
 - 👀 I’m interested in Developing Websites
 - 🌱 I’m currently learning MERN & DevOps
 - 💞️ I’m looking to collaborate on Projects
-- 📫 How to reach me @9660210208
+- 📫 How to reach me @9660210208 / @8440893150
 - 😄 Pronouns: ...100xDevs Developer
 - ⚡ Fun fact: ...Coding is for Geeks is the biggest Lie Ever
 
